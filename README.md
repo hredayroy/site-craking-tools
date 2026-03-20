@@ -5,6 +5,9 @@ https://yopmail.com/email-generator
 
 
 
+
+https://www.facebook.com/share/p/186y7PkxmN/
+
 💥বাংলা যুক্ত বর্ণ সম্পর্কে বিস্তারিত:
 ১. ক্ষ = ক+ষ
 ২. ষ্ণ = ষ+ণ
